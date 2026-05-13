@@ -1,4 +1,4 @@
-# 
+# advanced Brushes for Affinity Photo for macOS - blend modes and perspective warp offers the most advanced Affinity Photo for macOS brush, with blend modes and perspective warp.
 
 
 
